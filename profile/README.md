@@ -7,7 +7,7 @@ The company provides support across the full system lifecycle, helping clients d
 
 ## Contact
 
-**Lukas Hjortberg - Founder & Principal Consultant**  
+**Lukas Hjortberg - Founder & Consultant**  
 📧 lukas.hjortberg@gmail.com  
 🔗 https://www.linkedin.com/in/lukas-hjortberg/
 
